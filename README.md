@@ -1,3 +1,4 @@
+# Karla G Honigmann Rodriguez
 Soy analista de datos que valora el compromiso,por mi formación previa como internacionalista, considero de suma importancia la honestidad en el manejo de la información y la responsabilidad del uso de datos, así como el tratamiento que se le da al proceso, soy empática, observadora, detallista, me gusta el autoaprendizaje y me interesa el mundo de la tecnología, considero que tengo la capacidad de adaptarme, para afrontar diferentes situaciones y darles solución.
 - 👋 Hi, I’m @kghonigmann
 - 👀 I’m interested in ...
